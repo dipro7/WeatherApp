@@ -1,3 +1,6 @@
 ## App Preview
 
-https://github.com/dipro7/WeatherApp/assets/126497663/dbcc9a84-5887-4b65-86c8-9904263f47b3
+
+https://github.com/user-attachments/assets/1755e6d0-3bda-4067-ac08-7b2da1cbe1d1
+
+
